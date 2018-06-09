@@ -1,37 +1,19 @@
-## Welcome to GitHub Pages
+## 坐等妖怪更新ing……(￣▽￣)~*
+妖怪 妖怪 什么时候更新？(～￣▽￣)～ 
+## 妖怪如果你下个星期更新视频，我就在B站直播吃翔！房间号：6089020( • ̀ω•́ )✧
 
-You can use the [editor on GitHub](https://github.com/bilibiliyaoguaixiaogongju/yao-guai/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+啊啊啊，我好像看看妖怪长什么样啊！！ヾ(ﾟ∀ﾟゞ)
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## 妖怪是我爷爷年轻时订阅过的up主，我爷爷二十年前告诉过我：“孩子，有朝一日这……这个叫妖怪小公举的up主更新了，一定……一定……咳咳咳，去帮我投上两个硬——币——”爷爷说完就断气了。医生说，只有妖怪重新更新视频才能使我爷爷诈尸——不不——是活过来。T^T
 
-### Markdown
+你们说妖怪跟喵桑是什么关系呀？ヽ(￣▽￣)ﾉ
+## 还用问呗，男女朋友啊。(￣▽￣)／
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/bilibiliyaoguaixiaogongju/yao-guai/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+那还有什么问题要问的呢？ヽ(￣▽￣)ﾉ
+## 妖怪，你是攻还是受？(￣▽￣)／
+## 妖怪，你有男朋友吗？(￣▽￣)／
+## 妖怪，你什么时候跟喵桑结婚？(￣▽￣)／
+## 妖怪，你是不是女的？(￣▽￣)／
+……
+## 诶？妖怪呢？(￣▽￣)／
+## 不好了，妖怪拿着刀杀过来了！！Σ(っ°Д°;)っ
